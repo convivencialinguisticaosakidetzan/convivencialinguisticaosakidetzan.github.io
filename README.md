@@ -10,8 +10,6 @@
 
 ## Osakidetzaako langileek hizkuntz-eskakizunei buruz egindako adierazpena
 
-<img src="elkarrekinsumarbai_02.png" alt="'Inteligentziaren pesimismoaren aurrean, borondatearen optimismoa'. Gramsci" width="600">
-
 Osasun arloko 685 kideko profesional talde bat gara, eta 1927 sinadurarekin, bat egin behar izan dugu euskararen hizkuntza-eskakizunen politikari buruzko kezka sakona adierazteko. Euskadin hizkuntza eta hizkuntza-eskubideak babestu eta sustatzearen garrantzia ulertzen badugu ere, uste dugu hartutako abusuzko neurriek hainbat bidegabekeria eta mugapen sortzen ari direla Osakidetzan lanean urteak daramatzaten osasun-profesionalen zati handi batentzat.
 
 Gure erkidego honetan bi hizkuntza ofizial ditugu, eta horiei balioa eman behar zaie. Eta, beraz, horietako baten profila ez izateak ez luke baztertzailea izan behar osasun publikoaren eremuan lanpostu bat lortzeko. Profilak neurriz kanpo eskatzeak oztopo bidegabeak sortzen ditu osasun-arloko ezagutza frogatuak eta esperientzia luzea izanik gure osasun-zerbitzuari kalitatea ematen dioten profesionalentzat, eta, hala ere, ez edukitzeagatik alboratuta eta gutxietsita geratzen diren profesionalentzat.
