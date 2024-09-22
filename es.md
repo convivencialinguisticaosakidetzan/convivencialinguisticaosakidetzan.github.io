@@ -2,7 +2,7 @@
 
 <img src="grupos-unidos.png" alt="Grupos unidos, por una exección lingüística real" width="600">
 
-# MANIFIESTO DE TRABAJADOR@S DE OSAKIDETZASOBRE LOS PERFILES LINGÜÍSTICOS
+# MANIFIESTO DE TRABAJADOR@S DE OSAKIDETZA SOBRE LOS PERFILES LINGÜÍSTICOS
 * [Manifiesto de trabajadores de Osakidetza sobre los perfiles lingüísticos](#manifiesto-de-trabajadores-de-osakidetza-sobre-los-perfiles-lingüísticos)
 * [Noticias relacionadas](#noticias-relacionadas)
 * [Para mantenerte informado](#para-mantenerte-informado)
