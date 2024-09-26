@@ -49,10 +49,10 @@ Adeitasunez,
 
 ## Lotutako albisteak
 
-* [https://www.elcorreo.com/sociedad/salud/sanitarios-solicitan-osakidetza-valore-euskera-contratos-20240719001606-nt.html](https://www.elcorreo.com/sociedad/salud/sanitarios-solicitan-osakidetza-valore-euskera-contratos-20240719001606-nt.html)
-* [https://www.elcorreo.com/sociedad/salud/osakidetza-primar-experiencia-sobre-euskera-20240720002821-nt.html](https://www.elcorreo.com/sociedad/salud/osakidetza-primar-experiencia-sobre-euskera-20240720002821-nt.html)
-* [https://www.telecinco.es/noticias/euskadi/20240905/profesionales-salud-euskera-conocimientos-hospitales-bilbao_18_013376211.html](https://www.telecinco.es/noticias/euskadi/20240905/profesionales-salud-euskera-conocimientos-hospitales-bilbao_18_013376211.html)
-* [https://www.berria.eus/iritzia/artikuluak/bazterketarik-gabeko-osakidetzaren-alde_2129994_102.html](https://www.berria.eus/iritzia/artikuluak/bazterketarik-gabeko-osakidetzaren-alde_2129994_102.html)
+* [Sanitarios solicitan que Osakidetza no valore tanto el euskera en sus contratos - El Correo](https://www.elcorreo.com/sociedad/salud/sanitarios-solicitan-osakidetza-valore-euskera-contratos-20240719001606-nt.html)
+* [«Osakidetza tendría que primar la experiencia sobre el euskera» - El Correo](https://www.elcorreo.com/sociedad/salud/osakidetza-primar-experiencia-sobre-euskera-20240720002821-nt.html)
+* [Profesionales de la Salud vasca piden que el euskera no prevalezca sobre el conocimiento en Bilbao - Tele 5](https://www.telecinco.es/noticias/euskadi/20240905/profesionales-salud-euskera-conocimientos-hospitales-bilbao_18_013376211.html)
+* [Bazterketarik gabeko Osakidetzaren alde - Berria](https://www.berria.eus/iritzia/artikuluak/bazterketarik-gabeko-osakidetzaren-alde_2129994_102.html)
 
 ## Informazioa jasotzeko
 
