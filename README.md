@@ -1,6 +1,6 @@
 **Euskera** | [Castellano](es)
 
-<img src="grupos-unidos.png" alt="Grupos unidos, por una exección lingüística real" width="600">
+<img src="6026172736918896657.jpg" alt="Grupos unidos, por una exección lingüística real" width="600">
 
 # HIZKUNTZ-ESKAKIZUNEI BURUZKO SAKIDETZAKO LANGILEEN ADIERAZPENA 
 
