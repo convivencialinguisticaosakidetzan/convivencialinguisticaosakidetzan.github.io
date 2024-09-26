@@ -1,6 +1,6 @@
 [Euskera](/) | **Castellano**  
 
-<img src="grupos-unidos.png" alt="Grupos unidos, por una exección lingüística real" width="600">
+<img src="6026172736918896657.jpg" alt="Grupos unidos, por una exección lingüística real" width="600">
 
 # MANIFIESTO DE TRABAJADOR@S DE OSAKIDETZA SOBRE LOS PERFILES LINGÜÍSTICOS
 * [Manifiesto de trabajadores de Osakidetza sobre los perfiles lingüísticos](#manifiesto-de-trabajadores-de-osakidetza-sobre-los-perfiles-lingüísticos)
