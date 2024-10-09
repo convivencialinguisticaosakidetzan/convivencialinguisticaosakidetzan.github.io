@@ -1,7 +1,5 @@
 **Euskera** | [Castellano](es)
 
-<img src="6026172736918896657.jpg" alt="Grupos unidos, por una exección lingüística real" width="600">
-
 # HIZKUNTZ-ESKAKIZUNEI BURUZKO SAKIDETZAKO LANGILEEN ADIERAZPENA 
 
 * [Hizkuntz-eskakizunei buruzko Osakidetzaako langileen adierazpena](#hizkuntz-eskakizunei-buruzko-osakidetzaako-langileen-adierazpena)
@@ -59,6 +57,7 @@ Adeitasunez,
 * [WhatsApp](https://chat.whatsapp.com/J3jWpnjJAWlJm9dGGHl7OH)
 * [Facebook](https://www.facebook.com/share/g/FNTci96ehkhQ8vSZ/)
 
+<img src="6026172736918896657.jpg" alt="Grupos unidos, por una exección lingüística real" width="600">
 
 <meta property="og:title" content="convivencialinguisticaosakidetza">
 <style>
