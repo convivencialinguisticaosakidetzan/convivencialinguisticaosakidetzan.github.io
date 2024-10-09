@@ -1,7 +1,5 @@
 [Euskera](/) | **Castellano**  
 
-<img src="6026172736918896657.jpg" alt="Grupos unidos, por una exección lingüística real" width="600">
-
 # MANIFIESTO DE TRABAJADOR@S DE OSAKIDETZA SOBRE LOS PERFILES LINGÜÍSTICOS
 * [Manifiesto de trabajadores de Osakidetza sobre los perfiles lingüísticos](#manifiesto-de-trabajadores-de-osakidetza-sobre-los-perfiles-lingüísticos)
 * [Noticias relacionadas](#noticias-relacionadas)
@@ -57,6 +55,8 @@ El grupo de profesionales “Unidas por una Exención Lingüística Real”.
 
 * [WhatsApp](https://chat.whatsapp.com/J3jWpnjJAWlJm9dGGHl7OH)
 * [Facebook](https://www.facebook.com/share/g/FNTci96ehkhQ8vSZ/)
+
+<img src="6026172736918896657.jpg" alt="Grupos unidos, por una exección lingüística real" width="600">
 
 <meta property="og:title" content="convivencialinguisticaosakidetza">
 <style>
