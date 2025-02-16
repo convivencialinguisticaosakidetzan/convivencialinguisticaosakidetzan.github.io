@@ -52,7 +52,7 @@ Adeitasunez,
 * [Profesionales de la Salud vasca piden que el euskera no prevalezca sobre el conocimiento en Bilbao - Tele 5](https://www.telecinco.es/noticias/euskadi/20240905/profesionales-salud-euskera-conocimientos-hospitales-bilbao_18_013376211.html)
 * [Bazterketarik gabeko Osakidetzaren alde - Berria](https://www.berria.eus/iritzia/artikuluak/bazterketarik-gabeko-osakidetzaren-alde_2129994_102.html)
 * [Una política lingüística errónea perjudica gravemente la salud - El Correo](https://www.elcorreo.com/opinion/tribunas/teresa-perales-jose-do-pozo-raquel-reglado-josebe-vicente-politica-linguistica-erronea-perjudica-gravemente-salud-20250213205503-nt.html)
-* [Una política lingüística errónea perjudica gravemente la salud - en abierto]((https://www.almendron.com/tribuna/una-politica-linguistica-erronea-perjudica-gravemente-la-salud/)
+* [Una política lingüística errónea perjudica gravemente la salud - irekian](https://www.almendron.com/tribuna/una-politica-linguistica-erronea-perjudica-gravemente-la-salud/)
 
 ## Informazioa jasotzeko
 
