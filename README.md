@@ -51,6 +51,8 @@ Adeitasunez,
 * [«Osakidetza tendría que primar la experiencia sobre el euskera» - El Correo](https://www.elcorreo.com/sociedad/salud/osakidetza-primar-experiencia-sobre-euskera-20240720002821-nt.html)
 * [Profesionales de la Salud vasca piden que el euskera no prevalezca sobre el conocimiento en Bilbao - Tele 5](https://www.telecinco.es/noticias/euskadi/20240905/profesionales-salud-euskera-conocimientos-hospitales-bilbao_18_013376211.html)
 * [Bazterketarik gabeko Osakidetzaren alde - Berria](https://www.berria.eus/iritzia/artikuluak/bazterketarik-gabeko-osakidetzaren-alde_2129994_102.html)
+* [Una política lingüística errónea perjudica gravemente la salud - El Correo](https://www.elcorreo.com/opinion/tribunas/teresa-perales-jose-do-pozo-raquel-reglado-josebe-vicente-politica-linguistica-erronea-perjudica-gravemente-salud-20250213205503-nt.html)
+* [Una política lingüística errónea perjudica gravemente la salud - en abierto](https://www.elcorreo.com/opinion/tribunas/teresa-perales-jose-do-pozo-raquel-reglado-josebe-vicente-politica-linguistica-erronea-perjudica-gravemente-salud-20250213205503-nt.html)
 
 ## Informazioa jasotzeko
 
